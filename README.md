@@ -1,0 +1,1 @@
+# loti ceru ka soreiz viss izdosies
